@@ -1,4 +1,4 @@
-### I make original compositions, video game covers, and Zelda mods!
+### I make original compositions, video game music covers, and Zelda mods!
 
 View my online content portfolio [here](https://iruka-wolf.github.io/)!
 
